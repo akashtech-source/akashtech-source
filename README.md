@@ -9,3 +9,4 @@
 - 💬 Total Project 12
 - ⚡ Fun fact: I'm 0000.1% in Programming
 
+My Skill:
